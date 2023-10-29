@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Devika Nair. I'm an analytics professional currently working as a Business Data Analyst at a start-up. 
